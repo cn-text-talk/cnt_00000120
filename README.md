@@ -12,6 +12,8 @@
 <br>
 <br>$\textsf{\color{red   }{背后还有魔控制,李洪志销毁尽其主元神,层层元神.}}$
 <br>
+<br>你们搞错了，绝对不需要任何努力，法正人间时，任何佛神魔人鬼，都会有法轮功。
+<br>没有谁比谁强的。
 </h1>
 <hr>
 <img src="https://github.com/user-attachments/assets/3bbb736a-b8e1-4f8c-a079-1b446b70ebc4" alt="MLH_100_R000_M_1X2_00">
