@@ -1,6 +1,5 @@
 <h1>$\textsf{\color{red   }{10年的长时间,李洪志照片下,他们她们选择的.}}$
 <br>
-<br>$\textsf{\color{red   }{李洪志杀尽耶稣元神家族所有女.}}$
 <br>$\textsf{\color{red   }{李洪志销毁尽耶稣元神家族所有女,层层元神.}}$
 <br>$\textsf{\color{red   }{(就是那些看上去漂亮的妓女).}}$
 <br>
